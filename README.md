@@ -14,9 +14,7 @@ We provide professional grout repair and tile regrouting services across New Jer
 
 ## Locations We Serve
 - Newark, NJ
-- Jersey City, NJ
-- Paterson, NJ
-- Elizabeth, NJ
 
 ## Contact Us
 Visit our website for more details and booking.
+https://njgroutman.com/
